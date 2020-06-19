@@ -11,3 +11,7 @@ Kevin Costerns erster Film der mit den Gepflogenheiten des Hollywoodkino bricht 
 * frei
 * stark
 * mit der Natur im Einklang
+
+## Das ist sein Moto
+
+> Ich wollte schon immer den Westen kennen lernen, bevor es ihn nicht mehr gibt. Unter allen Fährten in diesem Leben gibt es eine, die am meisten zählt. Es ist die Fährte, die zum wahren Menschen führt.
